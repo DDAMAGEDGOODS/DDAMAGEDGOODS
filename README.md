@@ -1,16 +1,18 @@
-## Hi there 👋
+![](https://gofile.io/d/U5NZZX)
 
-<!--
-**DDAMAGEDGOODS/DDAMAGEDGOODS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+B E L L . 
 
-Here are some ideas to get you started:
+They/Them . 
+![](https://gofile.io/d/6Vtf8M) ![](https://gofile.io/d/708LZQ)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://gofile.io/d/8ci0yK)
+
+
+#. Not a fan of dupes, #1 black ops: cold war fan.
+
+#. I'm not the best at being serious, but please tell me when i need to be serious since i can not see social cues.
+
+#. My adhd effects me ALOT . you will see me stim, zone out, etc.
+
+#. I can't control my anger, i am a senstive person when it comes to sudden emotions
+
