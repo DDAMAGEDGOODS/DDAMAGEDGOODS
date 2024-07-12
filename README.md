@@ -1,11 +1,9 @@
-![](https://gofile.io/d/U5NZZX)
+( DON'T COPY MY SKINS . )
 
 B E L L . 
 
 They/Them . 
-![](https://gofile.io/d/6Vtf8M) ![](https://gofile.io/d/708LZQ)
 
-![](https://gofile.io/d/8ci0yK)
 
 
 #. Not a fan of dupes, #1 black ops: cold war fan.
