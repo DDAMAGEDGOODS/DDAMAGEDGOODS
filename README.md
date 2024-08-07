@@ -14,3 +14,5 @@ They/Them .
 
 #. I can't control my anger, i am a senstive person when it comes to sudden emotions
 
+
+im gonna remake lmfao
